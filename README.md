@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Andrej Ambrož @Ambroz-VUT
+- 👀 I’m currently studying at https://vut.cz
